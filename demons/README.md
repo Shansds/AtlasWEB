@@ -1,46 +1,13 @@
-# Démons
+# Les clans de l'ordre démoniaque 
 
-### **Les Démons et les Lunes Démoniaques**
+ Le Clan Akaza est connu  pour son style de combat unique, un art martial dans lequel chaque membre est endoctriné dès son plus jeune âge. Leur honneur est basé sur la maitrise du combat rapproché , mais aussi  sur une loyauté inébranlable envers leur maître le Démon Originel. Pour eux chaque affrontement est une leçon afin de pouvoir devenir la meilleure version de soi-même.
+La communication au sein du clan est inefficace ils considèrent les mots comme si il ne servait pas , préférant communiquer  à travers les combats, où les intentions ne peuvent être dissimulées . Dotés de sens bien plus développer  que les autres démons, les Akaza sont particulièrement sensibles aux injustices. Ils suivent un code d'honneur strict et hermétique.
 
-Alors que l’humanité vacille au bord de l’extinction, les démons dominent désormais les terres du Japon.\
-Cruels, impartiaux et impitoyables, ces monstres ne laissent derrière eux que ruines et bains de sang. Ils avancent sans remords, consumant tout sur leur passage. &#x20;
 
-Le pays a été méthodiquement divisé en régions, chacune placée sous le joug d’une Lune Démoniaque.\
-Ces Lunes, d’une puissance écrasante, règnent en maîtres absolus sur leurs territoires. Leur objectif est clair : soumettre entièrement le Japon, jusqu’à ce que plus aucun Pourfendeur ces chasseurs d’ombre appelés autrefois à défendre l’humanité n’ose se dresser contre eux.
+Le Clan Doma les membres de ce clan sont connues pour leurs dévotion à libérer la race humaine quitte à leurs ôté la vie d’une manière la plus horrible , ils ont appris à supprimer leurs émotion pour ne pas avoir de remord après avoir enlever la vies aux humains et donner comme prétexte le faites dès les libérer du fardeau de la vie. Ils ont été élevés avec une croissance qui les a endoctrinées dans cette croyance une entité suprême nommée eiraku.
 
-Leur règne ne tolère aucune contestation.\
-Toute tentative de rébellion est impitoyablement écrasée, dans le sang, la douleur… puis dévorée. Car dans ce monde déformé par l’horreur, les corps des résistants deviennent festins, et leur mémoire un avertissement.
 
-***
 
-#### **Un Règne de Terreur et de Plaisir Déviant**
+Le clan Rui   Les membres de ce clan sont connus pour leur mode de vie différent de celui des autres démons, ainsi que pour leur capacité à pouvoir tisser des fils aussi tranchants que des katanas. Le clan Rui est un clan manipulateur : la manipulation d’autrui et le mensonge sont des valeurs fondamentales pour chacun de ses membres. Une fois reconnus comme un clan au sein de l’ordre démoniaque, les Rui commencèrent à poser leurs bases en manipulant certains démons, les prenant comme serviteurs, ou encore en prenant le parti des plus puissants afin d’être dans leur bonne grâce.
 
-Mais le plus terrifiant n’est pas seulement leur pouvoir.\
-C’est le plaisir malsain qu’ils tirent de la souffrance humaine.
 
-Les Démons, et surtout les Lunes Démoniaques, ne se contentent plus de chasser les humains.\
-Ils les élèvent comme du bétail, les forcent à se reproduire, et les maintiennent dans des enclos, uniquement pour nourrir leur race.\
-Ils organisent des jeux cruels, où les humains sont jetés les uns contre les autres dans des arènes, manipulés dans des jeux sadiques, utilisés comme divertissement par leurs bourreaux.
-
-Ces spectacles sont devenus leur passe-temps favori, un théâtre macabre où la souffrance humaine est une source de rire et d’amusement.\
-Certains démons vont même jusqu’à élever des lignées humaines, sélectionnant les plus forts, les plus résistants… uniquement pour les voir tomber plus violemment.
-
-***
-
-#### **L’Ordre Démoniaque**
-
-Sous les ordres des Lunes, l’armée démoniaque s’accroît chaque jour.\
-Les démons de rang inférieur obéissent sans discuter, agissant comme des soldats fanatiques. Leur mission première : collecter de la chair humaine les démons de leur région.
-
-Les plus puissants d’entre eux, doués d’intelligence et de ruse, grimpent les échelons. Ces hauts gradés sont chargés des opérations spéciales : espionnage, infiltration, repérage, et surveillance constante des zones à risque. Ils traquent les traces des Pourfendeurs, étouffent dans l’œuf toute velléité de soulèvement, et éradiquent les poches de résistance avant même qu’elles ne prennent forme.
-
-***
-
-#### **Le Japon Sous le Joug des Démons**
-
-Chaque région du Japon vit désormais sous une menace omniprésente.\
-Les humains y survivent dans la terreur, écrasés par le poids de leur condition, privés de droits, de liberté, et d’espoir.\
-Les villages se terrent, les familles se taisent, et les prières n’ont plus d’écho.
-
-Le Japon est devenu une cage, un terrain de chasse, un théâtre d’humiliation pour les démons.\
-La liberté n’est plus qu’un souvenir brisé, et le règne de l’ombre, un cauchemar bien réel.
